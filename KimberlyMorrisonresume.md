@@ -16,7 +16,7 @@ In partnership with Amelia Bonow and Lindy West, we started a conversation that 
 ####Apprentice, [Verellen Amplifiers](http://www.verellenamplifiers.com/verellennewsite/), Seattle WA<P>June 2015-present 
 <ul><li>Learning principles of electronics, circuitry, and sound<li>Duties include soldering and populating boards<li>Occasional metal machining and woodwork</ul>
 
-####Instructor and Counselor, [Rain City Rock Camp](raincityrockcamp.org)<p>May 2015-present
+####Instructor and Counselor, [Rain City Rock Camp](raincityrockcamp.org), Seattle WA<p>May 2015-present
 <ul><li>Volunteer counselor and bass instructor for Rain City Rock Camp for Girls, teaching girls ages 8-17 the fundamentals of music, confidence, and supporting each other in a positive environment that culminates in a live performance<li>Band coach for Advanced Music Program at Experience Music Project ("AMP at EMP"), helping young ladies ages 14-19 who have prior musical experience form a band, write an original song, and then record it<li>Guitar instructor and band coach at Ladies Rock Camp, a program for adult women who are interested in learning how to sing, play instruments, and write and perform a song in a live setting<li>Ongoing RCRC volunteer outreach at local events including the Women In Creative Industries Forum</ul>
 
 ####Bartender, The Unicorn, Seattle WA<p>March 2015-present
